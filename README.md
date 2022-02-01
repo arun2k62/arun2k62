@@ -23,6 +23,8 @@ I'm curious learner. Now I like building new stuff and work with techy people �
 
 - 🔭 I’m currently working on askmattrab.com 
 - 👯 I’m looking to collaborate on OpenSource Projects 
+- 📫 How to reach me: https://t.me/arun2k62 
+- 😄 Pronouns: Orun
 - ⚡ Fun fact: I do not play any games out there . 
 
 
