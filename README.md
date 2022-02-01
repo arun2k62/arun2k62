@@ -17,7 +17,6 @@ Here are some ideas to get you started:
 
 ### Hi there 👋,  Hey wave,I'm Arun !
 ####  A Keen Learner
-(https://www.google.com/url?sa=i&url=https%3A%2F%2Fmedium.com%2Fswlh%2F10-things-every-programmer-should-know-26ba37cfcaf4&psig=AOvVaw33z_5ttPQetLsyjc-Ka79o&ust=1643793462669000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCJCU6oKW3vUCFQAAAAAdAAAAABAD)
 
 I'm curious learner. Now I like building new stuff and work with techy people – nothing really interesting is ever built alone! 
 
